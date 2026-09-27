@@ -1,2 +1,2 @@
-# LogicMojo-AI-ML--Sept26-Rupali333
+# LogicMojo-AI-ML-Sept26-Rupali333
 Assignments
